@@ -1,1 +1,1 @@
-# Tro-choi-chu-de-so-nguyen-to-To-n6
+# Tro-choi-chu-de-so-nguyen-to-Toan-6
